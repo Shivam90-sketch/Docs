@@ -1,4 +1,8 @@
+Our mission is to deliver affordable and organic drinks (alcohol or non-alcohol) to customers at their convenience. Customer can place their order anytime and from anywhere.
+
 Thristy
+
+Simplicity
 
 While the appearance of your website is certainly important, most people aren't coming to your site to evaluate how slick the design is. They want to complete some action or to find some specific piece of information. The colour used is very precisely so that it matches with the user experience and the purpose of the website too. The typefaces are highly readable, so nothing too artsy or very minimal script fonts.
 
