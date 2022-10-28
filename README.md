@@ -1,3 +1,24 @@
+Generate leads
+
+One of the biggest advantage is having website for your business is generation leads. as people is moving fast to online the getting order form online is more chances. and here our website will stand and help the business to generate more leads.
+
+Help People discover you Online
+
+As the better seo it help business to grow fastly, and in our website the seo is well maintained
+
+
+Showcase our services
+
+As website has use less maintain the white spaces puting the ads on website will be more, as we create new service using our website we can easily maintained that.we can show our happy clients and repented customers led which will help to retain customers.
+
+
+Our website is on Around the clock access
+
+as it is simple and easy to navigate, while making the changes and maintaining the new change will be easy, and the code is return so maintain that is will handle some exceptions.
+
+
+
+
 Our mission is to deliver affordable and organic drinks (alcohol or non-alcohol) to customers at their convenience. Customer can place their order anytime and from anywhere.
 
 Thristy
